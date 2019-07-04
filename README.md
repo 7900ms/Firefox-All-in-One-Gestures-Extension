@@ -1,0 +1,1 @@
+# Firefox-All-in-One-Gestures-Extension
